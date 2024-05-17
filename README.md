@@ -6,3 +6,5 @@
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I am a Nightscape photographer
 
+Connect with me:
+www.linkedin.com/in/khushi-kalyani-b07b05271
